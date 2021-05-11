@@ -1,1 +1,1 @@
-# Study
+# Studies
